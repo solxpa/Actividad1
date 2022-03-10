@@ -1,2 +1,0 @@
-# Actividad1
-Trabajo
